@@ -13,3 +13,11 @@ Schema- Music Store Database
 
 
 <img width="710" height="574" alt="213707717-bfc9f479-52d9-407b-99e1-e94db7ae10a3" src="https://github.com/user-attachments/assets/91c63843-36da-4e32-b96c-a9f0fcf0a228" />
+
+
+
+
+** Amogsiddha Burhanpure **
+📧 amogsidhaburhanpure@gmail.com
+
+🌐 LinkedIn
