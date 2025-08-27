@@ -20,4 +20,4 @@ Schema- Music Store Database
 ** Amogsiddha Burhanpure **
 📧 amogsidhaburhanpure@gmail.com
 
-🌐 LinkedIn
+🌐 [LinkedIn](https://www.linkedin.com/in/amogsiddh-burhanpure-a9363928a/)
